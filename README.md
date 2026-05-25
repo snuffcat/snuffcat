@@ -1,5 +1,5 @@
 <p align="center">
-<img width="498" height="279" alt="image" src="https://github.com/user-attachments/assets/4922b1c6-f3fa-43d0-9f31-9f43bb1afa31" />
+<img width="640" height="376" alt="yandere-simulator-bloody" src="https://github.com/user-attachments/assets/2dd639c6-3bcf-47ce-98e1-8ea0359c66a6" />
 </p>
 
                                                  I'm not lovesick, I just wanna seeeee...
