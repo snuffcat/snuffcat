@@ -1,3 +1,7 @@
 <p align="center">
-<img src="https://img1.picmix.com/output/stamp/normal/4/1/7/7/2247714_05c9b.gif" alt="Marsey the Cat Chasing Laser Dot, cartoon , cute , playful , funny , orange  , white - GIF animé gratuit - PicMix"/>
+<img width="498" height="279" alt="image" src="https://github.com/user-attachments/assets/4922b1c6-f3fa-43d0-9f31-9f43bb1afa31" />
 </p>
+
+                                                 I'm not lovesick, I just wanna seeeee...
+                                                 
+                                                           Senpai notice me!
