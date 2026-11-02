@@ -1,5 +1,5 @@
 <p align="center">
-<img width="498" height="498" alt="ongezellig-mymy" src="https://github.com/user-attachments/assets/2a61ecaa-10d1-4937-a4d5-9f6f5b1687a4" />
+<img src=https://64.media.tumblr.com/f3d7f72a0fab4dab538504a161d332ea/47f000929904a340-ad/s250x400/3dc2b8532219b61002f6055264800579c9a17740.gifv />
 </p>
 
 <div align="center">
